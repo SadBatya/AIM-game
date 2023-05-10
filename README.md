@@ -1,1 +1,1 @@
-https://sadbatya.github.io/slider-cards
+https://sadbatya.github.io/AIM-game
